@@ -1,28 +1,4 @@
 # tasmania-plan
-# FINAL OPTIMIZED ITINERARY - My Best Recommendations
-
-Thank you for the trust! I’m honored to help plan your family’s Tasmania adventure. Here’s my definitive itinerary with the choices I genuinely believe will give you the best experience.
-
------
-
-## **MY KEY DECISIONS FOR YOU:**
-
-### **Decision 1: Day 1 - Relaxed Launceston Start (Option B)**
-
-**Why:** After an 8 AM ferry arrival with a 7-month-old infant and young kids, going straight to Cradle Mountain is too ambitious. You’ll enjoy Day 2 Cradle Mountain SO much more when everyone’s fresh and rested.
-
-### **Decision 2: BRUNY ISLAND over MONA**
-
-**Why:** This was tough, but here’s my reasoning:
-
-- **Bruny Island offers experiences you CAN’T get elsewhere**: The Neck’s wallaby encounters, dramatic Cape Bruny Lighthouse, wild beaches, and that magical “end of the world” feeling
-- **MONA is incredible but stationary**: It’s an art museum (albeit extraordinary). You can experience world-class art museums in many places
-- **Family experience**: Your 7 and 11-year-olds will be CAPTIVATED by Bruny Island - climbing The Neck stairs, spotting wallabies everywhere, eating cheese at Bruny Island Cheese Co, feeling the wild wind at the cape. MONA, while fascinating, is harder for kids to appreciate fully
-- **Unique Tasmania**: Bruny Island IS Tasmania - wild, beautiful, remote. MONA is world-class but could be anywhere
-- **Save MONA for next trip**: Come back to Tasmania in 5-10 years when kids are teenagers. They’ll appreciate MONA’s provocative art much more at 15 and 18 than at 7 and 11
-
-**The promise I’m making you:** You won’t regret choosing Bruny Island. The views from The Neck, seeing wallabies with your kids, the dramatic lighthouse - these are the moments you’ll remember forever.
-
 -----
 
 ## **YOUR DEFINITIVE 10-DAY TASMANIA ITINERARY**
