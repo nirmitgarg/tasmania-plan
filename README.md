@@ -1,5 +1,4 @@
 # tasmania-plan
------
 
 ## **YOUR DEFINITIVE 10-DAY TASMANIA ITINERARY**
 
